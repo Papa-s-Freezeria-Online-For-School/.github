@@ -2,6 +2,8 @@
 
 **Papa’s Freezeria Unblocked** is a **fun, fast-paced, and highly addictive simulation game** where you manage your very own ice cream shop on a tropical island. Loved by players of all ages, this game combines **strategic gameplay** with **colorful graphics** and **endless customization**, making it a **legendary hit** in the restaurant and time-management genre.
 
+## <a href="https://1kb.link/eaxqJK">👉 Click To Play Papa’s Freezeria Unblocked 👈</a>
+
 ---
 
 ### 🕹️ **What is Papa’s Freezeria?**
